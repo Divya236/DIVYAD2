@@ -41,3 +41,5 @@ When I felt all of the hatred was too powerful to stop (Ooh, yeah)
 Now my heart feel like an ember and it's lighting up the dark
 I'll carry these torches for ya that you know I'll never drop, yeah
 You might also like
+
+finish my song
